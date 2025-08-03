@@ -4,7 +4,7 @@
 
 ![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/176618cc0480feae807dcbb127c2535e5d81db5d/Linux/Linux1.jpg)
 
-![img alt]()
+![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/00434f1c09a2a4ef0d59163d0422c8a7f2f758ba/Linux/Linux2.jpg)
 
 ![img alt]()
 
