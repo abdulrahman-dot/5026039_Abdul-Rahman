@@ -2,4 +2,16 @@
 
 ![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/5aa5cc5e976556271d3e76e7f8963537364a04ce/GIT./Simplilearn.jpg)
 
+![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/176618cc0480feae807dcbb127c2535e5d81db5d/Linux/Linux1.jpg)
 
+![img alt]()
+
+![img alt]()
+
+![img alt]()
+
+![img alt]()
+
+![img alt]()
+
+![img alt]()
