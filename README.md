@@ -18,4 +18,4 @@
 
 ![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/d9edbce7f4ead916578f57741f14fa61f1194c3c/C/c%20introduction.jpg)
 
-![img alt]()
+![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/3b6f41efa777876dc188c51f9123470ae0586c63/C/c%20intermediate.jpg)
