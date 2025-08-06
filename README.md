@@ -16,6 +16,6 @@
 
 ![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/13f8e06958afcbbcb748253508f1b46511890ed0/Linux/Linux7.jpg)
 
-![img alt]()
+![img alt](https://github.com/abdulrahman-dot/5026039_Abdul-Rahman/blob/d9edbce7f4ead916578f57741f14fa61f1194c3c/C/c%20introduction.jpg)
 
 ![img alt]()
